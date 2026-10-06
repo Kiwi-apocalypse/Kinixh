@@ -1,1 +1,1 @@
-# Kinixh
+<p align="center"> <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=AEC3B8&center=true&vCenter=true&width=700&lines=kinich+%7C+is+%7C+awesome;awsomeee+like+meee!!;int+with+me+plss" alt="Typing SVG" /> </p>
